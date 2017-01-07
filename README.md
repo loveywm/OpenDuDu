@@ -58,6 +58,8 @@
 
 ![3D小夜灯](http://i.imgur.com/VqewDqF.png)
 
+![水母夜灯](http://i.imgur.com/h0dlzLD.png)
+
 ### 4.2 视频展示
 
 ## 5 淘宝定制售卖
